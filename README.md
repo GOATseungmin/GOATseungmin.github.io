@@ -1,0 +1,1 @@
+# GOATseungmin.github.io
